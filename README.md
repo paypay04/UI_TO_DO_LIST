@@ -10,7 +10,7 @@ LINK MOCK UP
 https://www.figma.com/design/OE2uUm8udiNS80fmTdLbhD/Untitled?node-id=26-27&t=aiJRenz3mzUnzoDs-1
 
 LINK UI
-
+https://vt.tiktok.com/ZS5c3wHPY/
 
 
 CLICK UP
